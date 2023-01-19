@@ -1,1 +1,1 @@
-Olá seja muito bem vindos(as)
+Olá seja muito bem vindos (as)
